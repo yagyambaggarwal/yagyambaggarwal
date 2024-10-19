@@ -5,7 +5,7 @@
 -  Also learning web development.
 - I want to learn to make games for VR and UR. its been a while since we got any positive serious upcurve in terms of our tech, these technologies i believe are the game changing future and are actually going to revolutionize the market and the world. thus to make content for these technologies and get into the new upcoming ecosystem.
 - 💞️ open to job opportunities or collaborations.
-- im commited to begin learning new skill in every 45 to 60 days. 
+- I try to learn a new skill in every 45 days. 
 - 📫 please contact me at vishuaggarwal219@gmail.com
 
 <!---
